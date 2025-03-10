@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">My name is HAkim and I'm a Computer Field's Student, from Pembangunan Jaya</p>
+<p align="left">My name is Hakim and I'm a Computer Field's Student, from Pembangunan Jaya</p>
 
 ###
 
