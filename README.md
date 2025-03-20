@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">✨ Bisa ngaji <br>📚 gapernah korupsi <br>🎯 Goals: selalu inget Tuhan</p>
+<p align="left">✨ Mafia Sholawat <br>📚 Professional Gooner <br>🎯 Goals: jadiinn akun pribadi isinya shitpost</p>
 
 ###
 
