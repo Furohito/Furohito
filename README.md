@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">✨ Mafia Sholawat <br>📚 Professional Gooner <br>🎯 Goals: jadiinn akun pribadi isinya shitpost</p>
+<p align="left">✨ Mafia Sholawat <br>📚 Professional Gooner <br>🎯 Goals: 2-5 </p>
 
 ###
 
