@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">✨ Mafia Sholawat <br>📚 Professional Gooner <br>🎯 Goals: 2-5 </p>
+<p align="left"></p>
 
 ###
 
@@ -34,6 +34,6 @@
 
 ###
 
-<p align="left">Jangan lupa bayar kuliah</p>
+<p align="left"></p>
 
 ###
