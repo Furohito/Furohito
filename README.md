@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">My name is Hakim and I'm a Computer Fields Student, from Pembangunan Jaya</p>
+<p align="left">Asus V16</p>
 
 ###
 
