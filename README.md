@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">Asus V16</p>
+<p align="left">Infromatics Student</p>
 
 ###
 
